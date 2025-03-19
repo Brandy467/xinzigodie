@@ -1,5 +1,5 @@
 
-CUHK网红教授Xin Wang大战网友 CUHK’s First Internet Celebrity: Xin Wang’s All-Night Rednote Showdown with Netizens
+CUHK网红教授王鑫大战网友 CUHK’s First Internet Celebrity: Xin Wang’s All-Night Rednote Showdown with Netizens
 
 起初是有个朋友在小红书问这个导师怎么样，有个别网友发了他的避雷，本来帖子没什么人看，结果导师本人当天注册账号，和网友通宵对骂，从第一天下午骂到了第二天早上。最后发现越骂越火，个性签名改成了“别跑，已报警”并且注销了账号，开始举报各种有他照片的帖子，理由是侵犯肖像权or名誉权，后所有帖子被删，成为香港中文大学历史上的光辉一战。该贴最后观战网友上万，点赞上千，收藏上百。你或许见过很多垃圾导师，但是没有见过亲自回怼陌生网友的垃圾导师吧。为保护相关用户，部分时间和用户名被隐去。以下所有内容来源于网络上流传的一些内容，不全面，但是可以看到当初对骂盛况空前绝后。
 It all started when a friend asked about this advisor on Xiaohongshu, and a few users shared their warnings about him. Initially, the post didn’t attract much attention, but then the advisor himself registered an account that very day and engaged in an all-night argument with netizens—starting in the afternoon and continuing until the next morning.
