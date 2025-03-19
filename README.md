@@ -20,7 +20,7 @@ Xin was also reported to have threatened graduating students, demanding that the
 
 Following his dismissal from CityU, Xin joined the Department of Surgery at the Chinese University of Hong Kong (CUHK). However, soon after his arrival, he experienced ongoing conflicts—both major and minor—with department leadership and various collaborators.
 
-There have been allegations that Xin disparaged clinical professors in private conversations, referring to Professor NG Siu Man Simon and Professor LAU Yun Wong James in derogatory terms and questioning their expertise. Additionally, he was reported to have fabricated claims about his close professional relationships with Professor CHOK Siu Ho Kenneth and Dr. CHIU Ka Fung Peter, allegedly using these assertions to pressure them into supporting his research endeavors.
+There have been allegations that Xin disparaged clinical professors in private conversations, referring to Professor NG Siu Man Simon and Professor LAU Yun Wong James in derogatory terms and questioning their expertise. Additionally, he was reported to have falsely claimed a close relationship with department head Simon, allegedly using these assertions to intimidate others.
 
 Furthermore, after gaining attention on Xiaohongshu, Xin allegedly instructed others to disseminate misleading information about Professor WONG Nathalie on the platform.
 
